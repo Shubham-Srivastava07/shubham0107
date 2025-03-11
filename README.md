@@ -1,1 +1,1 @@
-# shubham0107
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=22&pause=500&color=36BCF7&width=435&lines=🚀+DevOps+Engineer;🌱+Exploring+Cloud+and+K8s;🔥+Automating+Everything;💡+Learning+New+Tech)](https://git.io/typing-svg)
